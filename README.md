@@ -6,3 +6,4 @@ sharing and tracking. Whether it's for outdoor adventures, team-building activit
 DEPLOYED THROUGH RENDER.COM........,
 ASKLINK.................    share this link to your friend and family to get in contact over map.
  YOU WILL SEE EVERYONE WHO IS WATCHING YOU THROUGH THIS LINK..........,
+![image](https://github.com/user-attachments/assets/060ae0ea-44d0-44f3-8701-3ed7cf785054)
