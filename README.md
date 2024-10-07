@@ -4,3 +4,5 @@ sharing and tracking. Whether it's for outdoor adventures, team-building activit
 
 
 DEPLOYED THROUGH RENDER.COM........,
+https://realtime-group-gps-1.onrender.com     share this link to your friend and family to get in contact over map.
+ YOU WILL SEE EVERYONE WHO IS WATCHING YOU THROUGH THIS LINK..........,
